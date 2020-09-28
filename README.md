@@ -2,4 +2,4 @@
 
 ###### Замени данные в папке /src/data/ и юзай. Надо это все автоматизировать и парсить дату с группы под управлением...
 
-[<img width="500" src="https://sun9-21.userapi.com/yMHl8vam7d5DzViPZTrhFUIEosLeacVJ2zTbWA/_949Q4JvK70.jpg">](https://vk.com/app7611728)
+[<img width="500" src="https://sun9-26.userapi.com/bXFcfMgvUd0tLE37kUPuzLvdHG3ksaDmn9v3FA/N0vKg8clHzA.jpg">](https://vk.com/app7611728)
